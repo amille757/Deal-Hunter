@@ -9,6 +9,17 @@
 
 # 注意时效
 
+## 微博关注薅羊毛
+- 发布时间 2020.12.11
+
+![Image text]( https://github.com/amille757/Deal-Hunter/blob/main/%E5%BE%AE%E4%BF%9D%E9%99%90%E6%97%B6%E7%A6%8F%E5%88%A9%E9%A2%861~2%E5%85%83%E7%BA%A2%E5%8C%85.jpg)
+
+- 打开微博APP->我->右上角->扫码进入活动页面->下拉到底关注完
+- 然后去消息看有没有微博红包发的私信->没有就换号->有就去余额提现！
+
+![Image text]( https://www.x6d.com/uploads/allimg/201209/1607523799417719.png)
+
+
 ## 微保限时福利领1~2元红包
 - 发布时间 2020.12.11
 ![Image text]( https://github.com/amille757/Deal-Hunter/blob/main/%E5%BE%AE%E4%BF%9D%E9%99%90%E6%97%B6%E7%A6%8F%E5%88%A9%E9%A2%861~2%E5%85%83%E7%BA%A2%E5%8C%85.jpg)
