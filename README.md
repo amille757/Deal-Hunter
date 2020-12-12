@@ -9,8 +9,8 @@
 
 # 注意时效
 
-## 微博关注薅羊毛
-- 发布时间 2020.12.11
+## QQ音乐免费领取11天绿钻
+- 发布时间 2020.12.12
 
 ![Image text]( https://github.com/amille757/Deal-Hunter/blob/main/qq%E9%9F%B3%E4%B9%90%E4%BC%9A%E5%91%98.jpg)
 
